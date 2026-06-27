@@ -12,4 +12,4 @@ MISC
 -
 > light inspo only from my skins ! ! ! pls don't take the whole skin
 
-ill probably put all this in a rentry instead and add a atabook......
+ill probably put all this in a rentry instead and add a atabook...... temporary 4 now
