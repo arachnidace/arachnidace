@@ -1,15 +1,7 @@
-HI HI HELLO
--
-C * H WHENEVER FREELY !!! WHISPER TO CATCH MY ATTENTION I USUALLY HAVE MY PERSONAL / PARTY TAB AND I'M MOSTLY OFFTAB
+IM MAKING MY ATABOOK SOON. TOTALLY AND THE RENTRY
 
-I block and mute ppl FREELY , please tell me if im ever sitting on someone !!!
-
-nsfw and semi-toxic jokes are ok to a extent, I RATHER PREFER if my friends only did this with me although
-
-I STRUGGLE WITH ASKING AND SPEAKING SOCIALLY SOMETIMES OK
-
-MISC
--
-> light inspo only from my skins ! ! ! pls don't take the whole skin
-
-ill probably put all this in a rentry instead and add a atabook...... temporary 4 now
+> im the "anon anyan" in some people's atabooks because im too scared to actually put my actual github
+>
+> feel free to c * h me any time !! im friendly :-3
+>
+> i hide/block freely, i do make small exceptions if its been a long time ago though and the note for the block is like really stupid
