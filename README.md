@@ -4,4 +4,4 @@ IM MAKING MY ATABOOK SOON. TOTALLY AND THE RENTRY
 >
 > feel free to c * h me any time !! im friendly :-3
 >
-> i hide/block freely, i do make small exceptions if its been a long time ago though and the note for the block is like really stupid
+> i hide/block freely, i do make small exceptions if its been a long time ago though and if the note for the block is like really stupid
