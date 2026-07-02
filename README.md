@@ -1,4 +1,4 @@
-IM MAKING MY ATABOOK SOON. TOTALLY AND THE RENTRY
+IM MAKING THE RENTRY WITHALL THE PONYTOWN INFO
 
 > im the "anon anyan" in some people's atabooks because im too scared to actually put my actual github
 >
