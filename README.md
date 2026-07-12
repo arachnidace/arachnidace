@@ -1,3 +1,15 @@
-> feel free to c * h with me any time !! im friendly :-3
->
-> i hide/block freely but sometimes rarely
+<div align="center">
+
+*wemmbu was here (✿ᵔ ᵕ ᵔ)*
+
+<div>
+  
+<p align="center">
+  <img src="https://files.catbox.moe/ildoeb.png" width="350">
+</p>
+
+<div align="center">
+
+rentry⠀⠀[atabook](https://arachnidace.atabook.org/?page=1)
+
+<div>
