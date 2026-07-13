@@ -10,7 +10,7 @@
 
 <div align="center">
 
-rentry⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀[atabook](https://arachnidace.atabook.org/?page=1)
+rentry⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[atabook](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
