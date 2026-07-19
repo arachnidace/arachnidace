@@ -24,6 +24,8 @@ cuddle me <ins>freely</ins>*!* I don't mind if you do
 
 I am <ins>less likely</ins> to int first, I get really shy if it's someone I haven't warmed up to generally so pls bare with me
 
+I WILL BLOCK YOU IF I FIND OUT YOU ARE A BOUNDARY BREAKER
+
 <div>
 
 <div>
