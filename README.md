@@ -5,7 +5,7 @@
 <div>
   
 <p align="center">
-  <img src="https://files.catbox.moe/ildoeb.png" width="350">
+  <img src="https://files.catbox.moe/6hcz26.webp" width="350">
 </p>
 
 <div align="center">
@@ -20,7 +20,7 @@
 
 <div align="center">
 
-I WILL BLOCK YOU. ON SIGHT. IF I FIND OUT YOU ARE A BOUNDARY BREAKER
+BOUNDARY BREAKER = BLOCKED ON SIGHT
 
 <div>
 
