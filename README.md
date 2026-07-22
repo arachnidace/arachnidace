@@ -10,7 +10,7 @@
 
 <div align="center">
 
-rentry⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[atabook](https://arachnidace.atabook.org/?page=1)
+[rentry](https://rentry.co/arachnidace)⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[atabook](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
@@ -20,11 +20,7 @@ rentry⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[atabook]
 
 <div align="center">
 
-cuddle me <ins>freely</ins>*!* I don't mind if you do
-
-I am <ins>less likely</ins> to int first, I get really shy if it's someone I haven't warmed up to generally so pls bare with me
-
-I WILL BLOCK YOU IF I FIND OUT YOU ARE A BOUNDARY BREAKER
+I WILL BLOCK YOU. ON SIGHT. IF I FIND OUT YOU ARE A BOUNDARY BREAKER
 
 <div>
 
