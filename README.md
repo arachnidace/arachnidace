@@ -1,11 +1,11 @@
 <div align="center">
 
-*wemmbu was here (✿ᵔ ᵕ ᵔ)*
+*wip. ok.*
 
 <div>
   
 <p align="center">
-  <img src="https://files.catbox.moe/6hcz26.webp" width="350">
+  <img src="https://files.catbox.moe/nmysgb.png" width="350">
 </p>
 
 <div align="center">
