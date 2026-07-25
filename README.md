@@ -1,6 +1,6 @@
 <div align="center">
 
-*wip. ok.*
+**
 
 <div>
   
@@ -10,24 +10,16 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/arachnidace)⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
+[rentry](https://rentry.co/arachnidace)⠀⠀⠀<img src="https://64.media.tumblr.com/93cbd121ea4ea64e8a092e58399edfc3/c80e85c672fd2385-22/s75x75_c1/0b1ab8626ea2ce2effa791ff055033184a5eac20.gifv">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
 <p align="center">
-  <img src="https://i.postimg.cc/63bFsgp6/12.png" width="350">
+  <img src="https://64.media.tumblr.com/f53a01a90544df385c8546f022f5dc74/2a31c24843e36fd4-b4/s2048x3072/c68b63e3436411bafb018975bf8a2946fba881e8.pnj" width="250">
 </p>
 
 <div align="center">
 
-BOUNDARY BREAKER = BLOCKED ON SIGHT
+wip
 
 <div>
-
-<div>
-  
-<p align="center">
-  <img src="https://i.postimg.cc/5NVjRHry/tumblr-84f5a78982d5f59216aeed94cf4d4d53-2c4b295f-100.webp">
-  <img src="https://i.postimg.cc/NjwZ5Kqh/d1lfmwu-61e3b6cf-05cc-4368-8cd3-6f0c3aba6dfa.png">
-  <img src="https://i.postimg.cc/t4wC0vHJ/Tumblr_l_167557435638997.webp">
-</p>
