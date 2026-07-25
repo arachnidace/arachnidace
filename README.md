@@ -10,7 +10,7 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/arachnidace)⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[atabook](https://arachnidace.atabook.org/?page=1)
+[rentry](https://rentry.co/arachnidace)⠀⠀⠀<img src="https://files.catbox.moe/iyckz9.gif">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
