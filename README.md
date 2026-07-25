@@ -1,6 +1,6 @@
 <div align="center">
 
-"⠀⠀⠀let⠀'⠀s⠀go⠀to⠀heaven⠀!⠀⠀⠀"
+$\color{#FFA3FF}{\text{"⠀⠀⠀let⠀'⠀s⠀go⠀to⠀heaven⠀!⠀⠀⠀"}}$
 
 <div>
   
@@ -20,6 +20,6 @@
 
 <div align="center">
 
-wip
+$\color{#FFA3FF}{\text{BOUNDARY BREAKERS WILL BE BLOCKED ON SIGHT}}$
 
 <div>
