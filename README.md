@@ -1,25 +1,21 @@
-<div align="center">
-
-$\color{#FFA3FF}{\text{"⠀⠀⠀let⠀'⠀s⠀go⠀to⠀heaven⠀!⠀⠀⠀"}}$
-
 <div>
   
 <p align="center">
-  <img src="https://files.catbox.moe/nmysgb.png" width="250">
+  <img src="https://files.catbox.moe/ofz53b.gif" width="250">
 </p>
 
 <div align="center">
 
-[rentry](https://rentry.co/arachnidace)⠀⠀⠀⠀<img src="https://64.media.tumblr.com/93cbd121ea4ea64e8a092e58399edfc3/c80e85c672fd2385-22/s75x75_c1/0b1ab8626ea2ce2effa791ff055033184a5eac20.gifv">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
+[rentry](https://rentry.co/arachnidace)⠀⠀⠀⠀<img src="https://64.media.tumblr.com/cb7fb54eb0804dced2744ec093477c0e/b4746bdbb4997815-65/s75x75_c1/eb2dda3b46b804195586b0fac0e927b4efac7e46.gifv">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/f53a01a90544df385c8546f022f5dc74/2a31c24843e36fd4-b4/s2048x3072/c68b63e3436411bafb018975bf8a2946fba881e8.pnj" width="250">
+  <img src="https://64.media.tumblr.com/6e87f380949eeeaca0f28f1311a01e1b/e636630bc62b557b-5a/s1280x1920/d1f596d53c0dd9b04050494cb21e2dcb422553ce.gifv" width="250">
 </p>
 
 <div align="center">
 
-$\color{#FFA3FF}{\text{BOUNDARY BREAKERS WILL BE BLOCKED ON SIGHT}}$
+$\color{#249de9}{\text{read rentry for dni⠀⠀✧}}$
 
 <div>
