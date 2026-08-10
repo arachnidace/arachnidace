@@ -1,5 +1,12 @@
 <div>
   
+  <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=arachnidace&style=round&color=249de9&label=akkurones" alt="profile view counter" width="100" align="center">
+    
+</div>
+
+<div>
+  
 <p align="center">
   <img src="https://files.catbox.moe/ofz53b.gif" width="250">
 </p>
@@ -17,5 +24,3 @@
 <div align="center">
 
 $\color{#249de9}{\text{read rentry for dni⠀⠀✧}}$
-
-<div>
