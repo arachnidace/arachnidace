@@ -24,3 +24,5 @@
 <div align="center">
 
 $\color{#249de9}{\text{read rentry for dni⠀⠀✧}}$
+
+$\color{#ff0000}{\text{CUDDLE ME FREELY. IM FRIENDLY. I DONT BEAT PEOPLE UP.}}$
