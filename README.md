@@ -1,7 +1,7 @@
 <div>
   
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=arachnidace&style=round&color=249de9&label=akkurones" alt="profile view counter" width="100" align="center">
+  <img src="https://komarev.com/ghpvc/?username=arachnidace&style=round&color=249de9&label=classifed" alt="profile view counter" width="100" align="center">
     
 </div>
 
