@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/arachnidace)⠀⠀⠀⠀<img src="https://64.media.tumblr.com/cb7fb54eb0804dced2744ec093477c0e/b4746bdbb4997815-65/s75x75_c1/eb2dda3b46b804195586b0fac0e927b4efac7e46.gifv">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
+[prnscc](https://pronouns.cc/@arachnidace)⠀⠀⠀⠀<img src="https://64.media.tumblr.com/cb7fb54eb0804dced2744ec093477c0e/b4746bdbb4997815-65/s75x75_c1/eb2dda3b46b804195586b0fac0e927b4efac7e46.gifv">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
@@ -23,6 +23,6 @@
 
 <div align="center">
 
-$\color{#249de9}{\text{read rentry for dni⠀⠀✧}}$
+$\color{#249de9}{\text{" i thought that if i joined on a brand new identity ,⠀✧}}$
 
-$\color{#ff0000}{\text{CUDDLE ME FREELY. IM FRIENDLY. I DONT BEAT PEOPLE UP.}}$
+$\color{#249de9}{\text{then i could get that respect .⠀"}}$
