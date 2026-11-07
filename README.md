@@ -23,6 +23,6 @@
 
 <div align="center">
 
-$\color{#bd281c}{\text{" i thought that if i joined on a brand new identity ,⠀✧}}$
+$\color{#bd281c}{\text{" oyasumi oyasumi ,⠀✧}}$
 
-$\color{#bd281c}{\text{then i could get that respect .⠀"}}$
+$\color{#e1924f}{\text{close your eyes and you ' ll leave this dream !⠀"}}$
