@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[prnscc](https://pronouns.cc/@arachnidace)⠀⠀⠀⠀<img src="https://i.postimg.cc/1Xwp3mYJ/IMG_2791.gif">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
+[prnscc](https://pronouns.cc/@arachnidace)⠀⠀⠀⠀<img src="https://i.postimg.cc/1Xwp3mYJ/IMG_2791.gif">⠀⠀⠀[ 新book](https://fraggersinferno.atabook.org/)
 
 <div>
 
