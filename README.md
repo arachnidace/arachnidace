@@ -1,28 +1,28 @@
 <div>
   
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=arachnidace&style=round&color=249de9&label=classifed" alt="profile view counter" width="100" align="center">
+  <img src="https://komarev.com/ghpvc/?username=arachnidace&style=round&color=bd281c&label=torchflowers" alt="profile view counter" width="100" align="center">
     
 </div>
 
 <div>
   
 <p align="center">
-  <img src="https://files.catbox.moe/ofz53b.gif" width="250">
+  <img src="https://cdn.discordapp.com/attachments/1550687316320714842/1568734725911089212/IMG_7034.png?ex=6af0e590&is=6aef9410&hm=fd6f635ca642529f47b349b508c21cc33c981fe404e2bd89b3e9e682a35f6416&" width="250">
 </p>
 
 <div align="center">
 
-[prnscc](https://pronouns.cc/@arachnidace)⠀⠀⠀⠀<img src="https://64.media.tumblr.com/cb7fb54eb0804dced2744ec093477c0e/b4746bdbb4997815-65/s75x75_c1/eb2dda3b46b804195586b0fac0e927b4efac7e46.gifv">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
+[prnscc](https://pronouns.cc/@arachnidace)⠀⠀⠀⠀<img src="https://i.postimg.cc/1Xwp3mYJ/IMG_2791.gif">⠀⠀⠀[ 新book](https://arachnidace.atabook.org/?page=1)
 
 <div>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/6e87f380949eeeaca0f28f1311a01e1b/e636630bc62b557b-5a/s1280x1920/d1f596d53c0dd9b04050494cb21e2dcb422553ce.gifv" width="250">
+  <img src="https://64.media.tumblr.com/31c7ced4ddcee30bd2073c9b889e4e40/4160be3cc2b84620-8c/s640x960/e26410284d99cdd2ff5141dab2f516f670f6eafe.gifv" width="250">
 </p>
 
 <div align="center">
 
-$\color{#249de9}{\text{" i thought that if i joined on a brand new identity ,⠀✧}}$
+$\color{#bd281c}{\text{" i thought that if i joined on a brand new identity ,⠀✧}}$
 
-$\color{#249de9}{\text{then i could get that respect .⠀"}}$
+$\color{#bd281c}{\text{then i could get that respect .⠀"}}$
